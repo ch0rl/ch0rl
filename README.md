@@ -1,3 +1,3 @@
 # Hi :3
 🏳️‍🌈 🏳️‍⚧️  
-I'm Autumn (aka., chorl) and I use any/all pronouns.
+I'm Autumn (aka., chorl) and I use they/she pronouns.
